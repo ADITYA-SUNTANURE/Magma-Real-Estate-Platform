@@ -1,2 +1,2 @@
 # Real_Estate
-https://aditya-suntanure.github.io/Real_Estate/
+Click here --> https://aditya-suntanure.github.io/Magma-Real-Estate-Platform/
